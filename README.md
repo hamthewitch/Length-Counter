@@ -4,6 +4,8 @@ here is what it looks like just click the link
 
 ⬇️⬇️⬇️⬇️⬇️
 
-https://media.discordapp.net/attachments/864011599635152899/938074005297053736/unknown.png
+![burger](https://user-images.githubusercontent.com/95536563/152091008-f8a18281-83c5-4866-8ea0-63b05c914646.png)
+
 
 yeah atleast you know what it looks like um uh thats all 
+
