@@ -1,5 +1,5 @@
 # Length-Counter
-This thing is very cool pls use it um uh 
+This thing is very cool 
 
 Here is what it looks like:
 
