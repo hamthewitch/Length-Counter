@@ -1,6 +1,6 @@
 # Length-Counter
 this thing is very cool pls use it um uh 
-here is what it looks like just click the link 
+here is what it looks like 
 
 ⬇️⬇️⬇️⬇️⬇️
 
